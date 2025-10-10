@@ -1,4 +1,4 @@
-Kai - 18 - He/Him (or she) 
+Kai - 18 - She/He (or it) 
 
 ! I don’t ship them, i only see them as close friends. Don’t be weird about it. I don’t fw shipping. (I'm too grown for this) 
 
